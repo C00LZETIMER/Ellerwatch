@@ -1,3 +1,3 @@
-
- ![John_Doe_2011](https://github.com/user-attachments/assets/3a6c8bb3-91ba-4c89-bf89-a82ec0d1a3cf)
+![John_Doe_2011](https://github.com/user-attachments/assets/7ef0268f-17ed-4b91-b05b-39b7e2df9c7f)
     <body>[STRAW • ](https://janedoeefann.straw.page) 
+    
