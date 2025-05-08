@@ -1,4 +1,3 @@
 
-![20250506_121054](https://github.com/user-attachments/assets/dfb239fb-b1c3-4d22-b239-36d15a9a96ad)
-         
-  [STRAW • ](https://janedoeefann.straw.page) 
+ ![John_Doe_2011](https://github.com/user-attachments/assets/3a6c8bb3-91ba-4c89-bf89-a82ec0d1a3cf)
+    <body>hi John doe fans.. 
