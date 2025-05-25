@@ -1,6 +1,6 @@
 
 `dont look me with these eyes you dazzle me. `
-![John_Doe_2011](https://github.com/user-attachments/assets/7ef0268f-17ed-4b91-b05b-39b7e2df9c7f)
+![Untitled102_20250525174954](https://github.com/user-attachments/assets/dbcf08d2-1e00-42db-8327-16cffc844d8a)
    [STRAW •](https://janedoeefann.straw.page/) [ATA •](https://zemeah777.atabook.org/) [ROBLOX •](https://www.roblox.com/users/2005761045/profile?friendshipSourceType=PlayerSearch) 
 
    
