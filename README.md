@@ -1,6 +1,14 @@
   
 `lm sorry elliot."`
 ![1000018424](https://github.com/user-attachments/assets/bb529f9e-ee35-403d-a6e0-af940438cc3f)
+
+
+
+
+
+
+
+
 [STRAW •](https://janedoeefann.straw.page/) [ATA •](https://zemeah777.atabook.org/) [ROBLOX •](https://www.roblox.com/users/2005761045/profile?friendshipSourceType=PlayerSearch) 
           
 
