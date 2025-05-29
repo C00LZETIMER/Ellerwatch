@@ -1,6 +1,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31aolntofja7eezo74jmie3eaa6e&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31aolntofja7eezo74jmie3eaa6e&redirect=true)  
 `lm an idiot. `
-![1000018424](https://github.com/user-attachments/assets/bb529f9e-ee35-403d-a6e0-af940438cc3f)
+![Untitled108_20250529220510__fliter--warm-sea__channel--green__mode--normal](https://github.com/user-attachments/assets/d9625397-d258-4d38-a3d1-dbce8887a37f)
 
 
 
