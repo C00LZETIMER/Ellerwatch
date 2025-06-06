@@ -3,7 +3,8 @@
 <body></body> 
 
 
-   ![SwAeJuDiNoli](https://github.com/user-attachments/assets/6df77c6b-406f-4613-a44d-c0903c25a367)
+   ![RUST](https://github.com/user-attachments/assets/40b99b1c-5491-4fe1-9e8a-658ec7a7eea8)
+
 
  
  [STRAW + ](https://janedoeefann.straw.page/) [ATA +](https://zemeah777.atabook.org/) [ROBLOX +](https://www.roblox.com/users/2005761045/profile?friendshipSourceType=PlayerSearch) 
